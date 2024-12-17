@@ -1,0 +1,1 @@
+Beberapa file latihan dan proyek selama mengikuti pelatihan Teaching Aids yang diselenggarakan oleh Balai Besar Pengembangan Penjaminan Mutu Pendidikan Vokasi Bidang Otomotif dan Elektronika (BBPPMPV BOE) 
